@@ -1,1 +1,1 @@
-# Servi-o---Produtos-HardCore-
+# Serviço Produtos-HardCore
